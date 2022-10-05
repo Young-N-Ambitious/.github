@@ -11,6 +11,9 @@ Our community is one of a kind and started with like minded individuals wanting 
 
 ## Solution 
 There are so many career changers and recruiters who are trying to navigate a big pool of talent and tech companies to join. YNA screens and preps all members to become hot on the market; While also providing the best talent for recruiters to scout from. Individuals will no longer have to stand the job search alone and recruiters no longer have to blind recruit, nor waste tons of money on recruiting softwares and recruiting agencies. We are a one stop shop for enhancing your career and settling your business needs.
+
+## Sign Up To Join Our Community:
+Fill out the [YNA APPLICATION](https://docs.google.com/forms/d/e/1FAIpQLSfEHpF9H3U9yCzmUPEiac637mECOzXAqrr9AXuxuz48KUd1pQ/viewform)
 <!--
 
 **Here are some ideas to get you started:**
