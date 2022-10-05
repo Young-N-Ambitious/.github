@@ -1,2 +1,2 @@
-# .github
-README for the YNA Squad Organization
+# YNA
+Documentation for YNA SQUAD
